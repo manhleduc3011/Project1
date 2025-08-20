@@ -1,1 +1,1 @@
-minh ngu vl
+ez
